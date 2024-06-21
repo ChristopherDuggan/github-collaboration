@@ -1,3 +1,4 @@
+i added my own thing to this file i want to be accepted
 
 oh nooooo
 
@@ -8,4 +9,3 @@ I'm typing
 I am glad it's Friday!
 
 i added my own thing to this file i want to be accepted by the merge
-
